@@ -1,1 +1,2 @@
-## Advanced Calculator
+## Advanced Calculator 🔥
+Enjoy!
